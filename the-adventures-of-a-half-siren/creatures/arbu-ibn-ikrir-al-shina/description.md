@@ -1,0 +1,1 @@
+Old retired Cartographer itching to get back in the game. Worked in Caliphate of Narandaqia for decades before the war broke out. Since the war, prejudices against dwarves heavily increased and life became more and more unpleasant for him. He soon decided to retire and commissioned a ship that would let him travel the world once again. Also dables in smithery

@@ -1,0 +1,21 @@
+1. Jin's First assignment (1)
+    - Jin arrives home from tilling the fields one day
+    - Koga, his sensei plays a practical joke on Jin as they arrive at Jin's door
+    - Koga gives Jin their first assignment: they must assassinate an elderly drunkard gnome called Senqet Timbers
+        - It is implied that a noble has a grievance with Senqet for injuring their child
+        - Jin is instructed to please not get caught
+        - as a bonus, he can bring Senqet to Koga alive in a secret cave hideout
+        - not much other specifics were given
+        - it is known that Senqet is staying with a cleric named Rumin
+    - Day 1 (Monday):
+        - Jin makes small talk with his friend Wiggen an buys a fish
+        - Jin witnesses Rumin and Senqet arguing
+        - Jin also witnesses a hooded stranger talking to Senqet
+        - Senqet gives the stranger a bag of money to "performa a job"
+    - Day 2:
+        - Jin buys some tea that will allegedly help one fall asleep
+        - Jin stalks Senqet and Rumin and discretely investigates their home while they are away
+        - Jin finds a note from Ana to Senqet
+        - Ana is now the suspected identity of the hooded figure
+        - Jin visits *The Dusty Shoe Tavern* and befriends Shigeko by encouraging them to pursue their dreams of leaving town. They agree to meet again after Shigeko's shift is over. Ana is suspected to be a dancer in the *Goldmoon Theater Troupe*
+1. Jin's First assignment (2)

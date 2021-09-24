@@ -1,0 +1,4 @@
+The Crew of the Seawolf
+A ragtag group of misfits who joined hands since they couldn't seem to fit into there little pocket of society. Ship is oddly from Caliphate of Narandaqia but has a dwarvish-inspired build. The crew wanders around and looks for ways to make some coin. This always leads to the most fantastic adventures
+
+Seawolf: This dwarven explorer's ship has a stout hull and a carved figurehead, and is carried on the back of a giant manta ray. The ship's master is retired Ar'bu ibn Ikrir al-Shina male dwarf cartographer named Ar'bu ibn Ikrir al-Shinai. A huge sextant stands upon the ship's deck.

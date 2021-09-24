@@ -1,0 +1,2 @@
+The Kamaitachi
+The Kamaitachi are an international guild of assassins. They run a point organization where members receive orders from higher up, but they have no way of directly communicating with the bureaucratic apparatus. No one knows who runs the organization or how big it truly is. However, it is ubiquitously feared throughout the Yamato nations.

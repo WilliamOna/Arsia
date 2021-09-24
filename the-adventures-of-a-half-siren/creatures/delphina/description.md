@@ -1,0 +1,1 @@
+High Elf who works as an administrative aid for The Crew of the Seawolf. Polite, kind, and professional. Born to an afluent family in the Protectorate of Delya, but left becasue it was too stifling.
