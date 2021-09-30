@@ -1,21 +1,4 @@
-1. Jin's First assignment (1)
-    - Jin arrives home from tilling the fields one day
-    - Koga, his sensei plays a practical joke on Jin as they arrive at Jin's door
-    - Koga gives Jin their first assignment: they must assassinate an elderly drunkard gnome called Senqet Timbers
-        - It is implied that a noble has a grievance with Senqet for injuring their child
-        - Jin is instructed to please not get caught
-        - as a bonus, he can bring Senqet to Koga alive in a secret cave hideout
-        - not much other specifics were given
-        - it is known that Senqet is staying with a cleric named Rumin
-    - Day 1 (Monday):
-        - Jin makes small talk with his friend Wiggen an buys a fish
-        - Jin witnesses Rumin and Senqet arguing
-        - Jin also witnesses a hooded stranger talking to Senqet
-        - Senqet gives the stranger a bag of money to "performa a job"
-    - Day 2:
-        - Jin buys some tea that will allegedly help one fall asleep
-        - Jin stalks Senqet and Rumin and discretely investigates their home while they are away
-        - Jin finds a note from Ana to Senqet
-        - Ana is now the suspected identity of the hooded figure
-        - Jin visits *The Dusty Shoe Tavern* and befriends Shigeko by encouraging them to pursue their dreams of leaving town. They agree to meet again after Shigeko's shift is over. Ana is suspected to be a dancer in the *Goldmoon Theater Troupe*
-1. Jin's First assignment (2)
+# Leaving Home
+1. Osa swims north of her home village for a few days and eventually encounters a few boats with help from a dolphin she met along the way. She happened to encounter The Seawolf as its crew were in the midst of rehearsing a fake shipwreck, whereby a false state of panic and helplessness was projected so that they could lure their pursuers into a false sense of confidence, causing a tactical blunder. Osa was able to discretely give one of the sailors, named Rast, some quick acting lessons as the pursers were closing in. Due to this performance, the pirate crew of The Screwdriver and the Zranese ship Hemolele fell victim to a sneak attack by the the crew of The Seawolf as the two pursuing crews attempted to board. The quick battle ended in a complete route with The Seawolf being victorious. Upon the orders of Captain Estadu, the Zranese sailors were executed and tossed overboard. The scoundrels from The Screwdriver were all taken prisoner and thrown in the brig. Captain Screwdriver made allusions to some "secret", but gave no more details. Osa observed the whole situation from a hidden position, then revealed herself to the crew while pretending to be a confused and scared actress from Agheitys. For now, Delphina whole-heartedly believes her story and set her up as a guest of The Seawolf.
+
+1. Osa gets settled in her new guest cabin. In no time at all, she is able to talk her way into getting Rast to show her around the boat (even though she technically wasn't allowed to go to the lower levels). She briefly meets Branloy, Odgur, Barnacles the Dog, Ommot, Chamydia, Celaser and the captive Captain Screwdriver. He is putty in her hands as she uses her charisma to convince him of telling her the secret information he was previously witholding from his captors. Osa soon learns that Captain Screwdrive knows of a secret piece of parchment left behind to him from the now deceased Captain Raymond. In addition, there is also a rune that is potentially important to the secret that Screwdriver went through the trouble of swallowing in order to ensure its...safety. Osa later offers this information to Captain Estadu in order to secure a contract working on *The Seawolf*. Eventually, they agree to a deal whereby she will be paid about 10 gold/month and make 20% commissions on deals that she brokers. Following this deal, Osa witnesses Estadu fumble through a speech they give to the crew regarding their next course of action. The plan, for now is to set anchor in Kulana to gather more information. Osa eventually retires to her cabin in the evening as a front. She dives out the window and takes to her siren form, electing to sleep in the water while following the giant string ray.
