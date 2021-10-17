@@ -17,3 +17,4 @@ Inagawa Village
     - Rumen Sugiyama: Human Cleric from the affluent Sugimaya family. In their late twenties. Very prim and proper. Got sent to Inagawa Village by the main branch of the family
     - Wiggen Folkor: Kind old Gnome fisherman who loves to procrastinate. Used to be a noble before they threw it all away for a quiet lifestyle
     - Senteq Timbers: Elderly drunken gnome. A menace to all and a plague on society. Often drunk during all times of the day
+    - Shigeko: Barkeep at *The Dusty Shoe* who aspires to leave this dingy town

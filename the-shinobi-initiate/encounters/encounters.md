@@ -12,7 +12,7 @@
         - Jin witnesses Rumin and Senqet arguing
         - Jin also witnesses a hooded stranger talking to Senqet
         - Senqet gives the stranger a bag of money to "performa a job"
-    - Day 2:
+    - Day 2 (Tuesday):
         - Jin buys some tea that will allegedly help one fall asleep
         - Jin stalks Senqet and Rumin and discretely investigates their home while they are away
         - Jin finds a note from Ana to Senqet
@@ -31,3 +31,15 @@
         - She panics and runs back towards town while Jin simultaneously panics and jumps into the water in order to conceal himself. Neither see the other.
         - Jin awkardly meets the gaze of Wiggan as he emerges from the water and somewhat fails to completely play it off
         - Jin couldn't continue to track Ana for the evening, so he turns in for the night
+1. Jin's First Assignment (3)
+    - Day 3
+        - Jin wakes up and does his normal morning routine
+        - He does rounds around town to check on Senqet, Rumen, and the Goldmoon Theatre Troupe
+        - The Goldmoon theatre troupe are haninging out in the *Stockier Prince's Cleats Flophouse*
+        - Jin converses with them for a few hours after which he convinces Akra and Mokohatana to join him in visiting Shigeko in *The Dusty Shoe* to tell him they will be extending an offer to him
+        - During this visit, Jin is also able to convince Shigeko to allow Jin to cover his shift the following evening
+        - Later that evening, Jin witnesses Senqet being mugged by two drunk, disgruntled humans
+        - Rumen reluctantly moves to help Senqet but has some trouble.
+        - Jin swoops in and is able to incapacitate both assailants before major injury befalls Rumen and Senqet
+        - Senqet runs off screaming, spooked by Jin's sudden appearance, and Rumen and Jin track down Senqet back to Rumen's home
+        - Rumen is profusely thankful to Jin and now thinks very highly of him. He agrees to meet Jin for drinks the following evening at the *Dusty Shoe*. Rumen also takes Jin up on his offer to find a new job for Senqet
