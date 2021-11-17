@@ -1,0 +1,16 @@
+# 574
+- Month 7
+    - Day 1
+        - Jin's 1st assignment starts
+    - Day 4
+        - Jin's 1st assignment ends
+    - Day 6
+        - Local militia check up on Jin and 5 bandits attack the town        
+        - The old dragonborn beggar is murdered a few hours later
+    - Day 7
+        - Goldmoon Theatre troop + Shigeko leave town 
+    - Day 10
+        - Sugimaya soldiers show up to launch a larger investigation
+- Month 8
+    - Day 5
+        - Jin's 2nd assignment starts
