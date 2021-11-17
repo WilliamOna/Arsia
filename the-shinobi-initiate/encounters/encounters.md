@@ -1,4 +1,6 @@
+# Jin's first Assignment
 1. Jin's First assignment (1)
+    - Date: 01/07/574
     - Jin arrives home from tilling the fields one day
     - Koga, his sensei plays a practical joke on Jin as they arrive at Jin's door
     - Koga gives Jin their first assignment: they must assassinate an elderly drunkard gnome called Senqet Timbers
@@ -43,3 +45,36 @@
         - Jin swoops in and is able to incapacitate both assailants before major injury befalls Rumen and Senqet
         - Senqet runs off screaming, spooked by Jin's sudden appearance, and Rumen and Jin track down Senqet back to Rumen's home
         - Rumen is profusely thankful to Jin and now thinks very highly of him. He agrees to meet Jin for drinks the following evening at the *Dusty Shoe*. Rumen also takes Jin up on his offer to find a new job for Senqet
+1. Jin's First assignment (4,End)
+    - Day 4
+        - Jin spends the moring doing some low level recon. He runs into a seemingly senile old beggar who relates to him for being a dragonborn
+        - Later in the day he takes over for Shigeko's shift and prepares for Rumen and Senteq to visit him
+        - They arrive in the evening as discussed, and they engaged in merry-making for a while. A little too much merry-making apparently becase Senteq ends up clearing out the tavern with his poor conduct
+        - During the evening, Jin manages to covertly drug the pair and covertly steal a few coins from the bar
+        - Rumen grows tired and heads home first
+        - Senteq stays behind and passes out at the bar.
+        - Jin binds them and sneaks him into Koga's hideout
+        - Then he again sneaks away into Rumen's home and finds them passed out on the ground
+        - Jin proceeds to bind them and execute them via hanging them form the cieling
+        - This being the first time Jin has experienced murdering someone, Jin is overwhelmed the sight of watching a creature involuntarily struggling and cling to life. Jin looses nerve and has a breakdown that lasts through the end of the night
+        - Amid an enormous amount of psychological torment, Jin laboriously drags the now former person to the hideout and disposes of the body
+        - Jin subsequently hobbles home and suffers a night of torrmenting dreams
+    - Day 5
+        - Upon waking up, he is notified by his master to meet him at the cave
+        - After a long session of torture, they are able to discern the location of some hidden treasure that was left behind by what seems to be an agent or spy
+        - Senteq allegedly witness this person being murdered by some soldiers, who were unaware of this spy's hidden treasure
+        - Jin and Koga also discover a glimpse into Senteq's dark past and discover the truth of how Senteq became the way that they are
+        - After extracting the information, seemingly having regained their bearings, Jin decapitates Senteq and completes the mission
+        - Koga gives Jin their rewards and later shows them some meditation techniques to cope with the event
+        - Jin spends the day recuperating then later goes to bed and has a dream of engaging in a large scale battle in a far away place
+        - What will Jin's next assignment be? Will Jin find the Treasure? Who is Ana anyway? Will they find Jin Did Shigeko get into trouble for Jin's hijinks at the *Dusty Shoe*?
+# Treasure Hunt
+    - Day 6
+        - Jin wakes up and prepares for their trip. As they are about to leave their house, they are met with 3 members of the militia who are investigatign the disappearance of Rumen. Jin volunteers the information that he saw that at the bar on 7/4, but has not seen them since. The milita members are less than thorough and seem satisfied enough with Jin's responses 
+        - They go into town and say goodbye to Shigeko. Shigeko expresses a deep gratitude for Jin's impact in their life and inists that they meet again one day
+        - Jin finishes their goodbyes and then starts heading south toward the Kuwojima Forest
+        - While on the way, Jin crosses the prefectural checkpoint and pays a toll
+        - As they were approaching the forest, the sun began to set, so Jin resolved to set up to camp
+        - They got unlucky and set off a trap that alerted a nearby druid to their presence
+        - A battle ensued, whereby Jin was able to defeat a druid and their 3 boar sidekicks
+        - Jin gained enough experience to get to level 3
